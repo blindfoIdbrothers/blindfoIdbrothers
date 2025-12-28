@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.postimg.cc/Qdh0jBFH/image-2025-11-27-205714799.png">
+  <img src="https://i.postimg.cc/qqjXTBfC/image-2025-12-28-183935096.png">
 </div>
 
 <p align="center"> <a href= "https://github.com/toewrestlergod3000"> main </a> </p>
