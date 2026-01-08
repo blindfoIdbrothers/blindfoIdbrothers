@@ -3,3 +3,5 @@
 </div>
 
 <p align="center"> <a href= "https://github.com/toewrestlergod3000"> main </a> </p>
+
+<p align="center"> I WIN IN MY STUPID CHUNGI LIFE. BLINDFOLD BROTHERS ARE ALIVE. WELL AND BREATHING </p>
