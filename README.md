@@ -4,4 +4,4 @@
 
 <p align="center"> <a href= "https://github.com/toewrestlergod3000"> main </a> </p>
 
-<p align="center"> i remake layout soon.. k.. </p>
+<p align="center"> stream and one </p>
